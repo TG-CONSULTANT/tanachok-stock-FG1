@@ -1,0 +1,1 @@
+# tanachok-stock-FG1
